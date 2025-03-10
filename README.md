@@ -44,10 +44,16 @@ To be successful on Rubi Network and increase your earnings, here are some impor
 
 4. **Security Measures**: Never share your Rubi Network details with anyone. To ensure your account's security, use strong passwords and only share your personal information with trusted platforms. Protecting your details will secure your account from hacking attempts. Additionally, sharing your **“RB1925”** referral code with others can help you unlock new benefits.
 
-Source: https://www.deezer.com/tr/show/1001705941
+
 
 ---
 
 # Conclusion
 
 Rubi Network is a platform that allows you to easily mine cryptocurrency from your mobile device. By using a referral code like **“RB1925”**, new users can gain additional advantages. To make the most of these benefits, you should complete the KYC process, keep your wallet information secure, and mine regularly every day. You can also speed up your mining process by inviting friends and using the **“RB1925”** referral code to maximize the platform's benefits.
+
+# Source
+
+1. https://www.deezer.com/tr/show/1001705941
+2. https://open.spotify.com/episode/4zADBydQyNkWR5snSZr3mg?si=JSywANTKQ5udf9W5OzAgJQ
+3. 
