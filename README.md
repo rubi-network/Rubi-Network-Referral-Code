@@ -52,6 +52,6 @@ Rubi Network is a platform that allows you to easily mine cryptocurrency from yo
 
 # Source
 
-1. https://www.deezer.com/tr/show/1001705941
+1. https://www.deezer.com/show/1001705941
 2. https://open.spotify.com/episode/4zADBydQyNkWR5snSZr3mg?si=JSywANTKQ5udf9W5OzAgJQ
 
