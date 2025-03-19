@@ -4,6 +4,8 @@ When joining Rubi Network, there is a referral code that you can use during the 
 
 Using a referral code makes joining Rubi Network a more rewarding process. By using a code like **“IKO35”**, you can get extra benefits that will speed up your mining process. This system creates a win-win situation, helping both you and the person who invited you. 
 
+Sign up link: https://rubi.click/join/IKO35 
+
 ---
 
 # What is Rubi Network?
