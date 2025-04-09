@@ -40,7 +40,7 @@ To be successful on Rubi Network and increase your earnings, here are some impor
 
 1. **Create a Wallet**: The first thing you should do after joining Rubi Network is to create a wallet. Once you create your wallet, make sure to store the information securely. Losing this information may prevent you from transferring your earned rewards to crypto exchanges. Be careful during the wallet creation process and save the details in a secure place.
 
-2. **Complete KYC Verification**: KYC verification is crucial on Rubi Network to ensure your security. It helps prevent fraudulent activities on the platform. By using the **“IKO35”** referral code, you can complete your KYC process faster. However, as Rubi Network becomes more popular, the KYC process might take longer, so it’s important to complete it as soon as possible.
+2. **Complete KYC Verification**: KYC verification is crucial on Rubi Network to ensure your security. It helps prevent fraudulent activities on the platform. By using the **“YSN07”** referral code, you can complete your KYC process faster. However, as Rubi Network becomes more popular, the KYC process might take longer, so it’s important to complete it as soon as possible.
 
 3. **Mine Daily**: To earn on Rubi Network, make sure to log in every day and start the mining process. Even if your phone is turned off, the 24-hour mining period will continue. By mining daily, you can maximize your earnings.
 
